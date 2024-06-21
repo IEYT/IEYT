@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Math, Science, History
 - 🌱 I’m currently learning ... Python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ... via email(manveer1113@outlook.com)
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... I am a kid.
 
